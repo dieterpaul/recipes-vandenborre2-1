@@ -8,7 +8,7 @@
 - 3 tablespoons evaporated milk
 - 2 tablespoons Worcestershire sauce
 - 1/8 teaspoon cayenne pepper
-- 2 cloves garlic, minced 
+- 3 cloves garlic, minced 
 - tomato and salad
 
 ## Preparation
